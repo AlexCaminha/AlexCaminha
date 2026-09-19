@@ -1,1 +1,1 @@
-![I think therefore I am -- or not so much...](Descartes-thunderstruck.jpg)
+![I think therefore I am -- or not so much...](Descartes-thunderstruck-25pct.jpg)
